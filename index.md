@@ -13,3 +13,7 @@ Não sabes jogar? Não te preocupes! Temos uma comunidade acolhedora e experient
 ![image.png](images/ateneu.png)
 
 Marca na tua agenda e vem jogar connosco! Esta é a oportunidade perfeita para fazer novos amigos e viver momentos únicos em boa companhia. 🔥
+
+ⓕ [Grupo do Facebook](https://www.facebook.com/groups/2596188520771379)
+     
+ⓕ [Ateneu Popular de Montijo](https://www.facebook.com/AteneuPopularMontijo)
