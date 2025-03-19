@@ -16,6 +16,8 @@ Marca na tua agenda e vem jogar connosco! Esta é a oportunidade perfeita para f
 
 ![image.png](images/ateneu.png)
 
+![](images/icon-whatsapp.png) [A nossa comunidade no Whatsapp](https://chat.whatsapp.com/FszHtVB4qD9FFCM8sTYMlq)
+
 ![](images/icon-ig.png) [Segue-nos no Instagram](https://www.instagram.com/jogosnomontijo/)
 
 ![](images/icon-fb.png) [Participa no grupo do Facebook](https://www.facebook.com/groups/2596188520771379)
