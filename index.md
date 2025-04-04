@@ -1,6 +1,6 @@
-O grupo de jogos de tabuleiro do Montijo tem o prazer de anunciar a primeira noite de Jogos de Tabuleiro no Ateneu Popular do Montijo.
+O grupo de jogos de tabuleiro do Montijo tem o prazer de apresentar as noites de Jogos de Tabuleiro no Ateneu Popular do Montijo.
 
-Traz os teus amigos que nós trazemos os jogos. Se quiseres jogar algo que tenhas em casa, traz o jogo também. Vem fazer desta noite a primeira de muitas!
+Traz os teus amigos que nós trazemos os jogos. Se quiseres jogar algo que tenhas em casa, traz o jogo também.
 
 🗓 **Quando:** 17 de Abril
 
@@ -8,7 +8,7 @@ Traz os teus amigos que nós trazemos os jogos. Se quiseres jogar algo que tenha
 
 ⏰ **Hora:** A partir das 21:30
 
-No Grupo de Jogos de tabuleiro do Montijo, a diversão é garantida com uma vasta seleção de jogos para todos os gostos. Seja para competir, aprender ou simplesmente conhecer novas pessoas, esta noite promete ser inesquecível! ✨
+No Grupo de Jogos de tabuleiro do Montijo, a diversão é garantida com uma vasta seleção de jogos para todos os gostos. Seja para competir, aprender ou simplesmente conhecer novas pessoas, as noites prometem ser inesquecíveis! ✨
 
 Não sabes jogar? Não te preocupes! Temos uma comunidade acolhedora e experiente pronta para te ensinar tudo o que precisas saber. Esta é a oportunidade perfeita para descobrir novos favoritos e partilhar a tua paixão pelos jogos de tabuleiro.
 
